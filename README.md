@@ -297,7 +297,7 @@ This laboratory is intended strictly for education purposes only.
 **Benedict Addae**\
 Cybersecurity Student
 
-LinkedIn: [https://www.linkedin.com/in/waqaskarim/](https://www.linkedin.com/in/waqaskarim/)
+LinkedIn: [https://www.linkedin.com/in/benedict-addae-48268933a/](https://www.linkedin.com/in/benedict-addae-48268933a)
 
 ---
 
